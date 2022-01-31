@@ -16,9 +16,9 @@ author: Mrecho
 navbar-links:
   About Me: "aboutme"
   Resources:
-    - Beautiful Jekyll: ""
-    - Learn markdown: ""
-  Author's home: ""
+    - Discord server: "https://discord.gg/BaTZ7w9Rpv"
+    #more stuff
+  
 
 # --- Logo --- #
 
@@ -135,10 +135,10 @@ footer-hover-col: "#0085A1"
 # --- Web Analytics Section --- #
 
 # Fill in your Google Analytics gtag.js ID to track your website using gtag
-#gtag: ""
+gtag: "G-EEK3QVW84N"
 
 # Fill in your Google Analytics ID to track your website using Google Analytics
-#google_analytics: ""
+google_analytics: "G-EEK3QVW84N"
 
 # Fill in your Cloudflare Analytics beacon token to track your website using Cloudflare Analytics
 #cloudflare_analytics: ""
