@@ -17,4 +17,5 @@ Hello guys , I hope u having a good day ⚡, My name is Amine ait chabou aka Mre
 see you in the next week <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="20px"> <br>
 
 <p align="center">
-<img src=https://media.giphy.com/media/80Cdy9EteIuOc/giphy.gif"></p>
+    <img src="https://media.giphy.com/media/80Cdy9EteIuOc/giphy.gif">
+</p>
