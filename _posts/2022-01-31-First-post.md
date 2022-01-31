@@ -4,6 +4,7 @@ title: First post
 subtitle: Hey guys :)
 tags: [personal,special]
 thumbnail-img: https://pbs.twimg.com/media/FKXYHnWXoAYiKe0?format=jpg
+cover-img: "https://bloggingtips.com/wp-content/uploads/2021/02/first-blog-post-ideas-examples-1024x576.jpg.webp"
 ---
  
 
