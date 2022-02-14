@@ -50,14 +50,15 @@ look wt i found A FREAKINN OOLD SHOOTGUNN
 
 + <span style="background-color: #C6BF9C;">**My maternal uncle got an interesting collection of old coins and retro stuff**</span>
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off5.png)
-**.**
+**1980 repvbblica italiana l'100**
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off6.png)
-**.**
+**HEHEHE**
 
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off7.png)
+**old money**  
 
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off8.png)
-**old money** 
+
 
 he got awesome cool stuff 😎
 
@@ -72,10 +73,11 @@ he got awesome cool stuff 😎
 
 ## Podcasts 
 nextt week >...
-
+## gym ? 
+nextt week >...
 ## ✍️ Quote of the week 
 
-⚡ "People who avoid failure, also avoid success" *[![Twitter URL](https://img.shields.io/twitter/url/https/twitter.com/bukotsunikki.svg?style=social&label=Follow%20%40bukotsunikki)](https://twitter.com/Thebeast_ufc)* ⚡
+⚡ "People who avoid failure, also avoid success" *[![Twitter URL](https://img.shields.io/twitter/url/https/twitter.com/bukotsunikki.svg?style=social&label=Follow%20%40bukotsunikki)](https://twitter.com/Thebeast_ufc)* ⚡ <br>
 **note 🔍**: 
 
 should we add a news letter ? IT news maybe 
