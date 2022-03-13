@@ -15,15 +15,15 @@ I hope you had a wonderful weekend. How’s the weather where you are? Unfortuna
 Did you learned somthing last week ? I traveled with ma familly and i was nervous asf ; meeting familly and i dont know how to talk propaly anyway i learned stuff along the way 
 
 ## Study - School 📚
-How to use anki ? 
-How to enjoy study ? 
-How to stay focused ? 
-How to take care of school materials ? 
+How to use anki ? [fich write down the questions and answers in the other side and test ur self over time to memorize them]
+How to enjoy study ? [use colores and techniqs and study group]
+How to stay focused ? [pomodoro]
+How to take care of school materials ? [group to study with and ]
 
 I prepared a map full of topics that i will have at the exam , with some tips , but im still working on it , to eventely start before the end of this month
 
 + Everyday 2h (using pomodoro techniq) of revising school material of that day  
-
+[the begining always hard ABZ]
 ## Lessons from the travel 🗻👏
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off0.png)
 ![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off1.png)
