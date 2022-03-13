@@ -1,48 +1,90 @@
 ---
 layout: post
-title: today is the day of changing
-tags: [personal, special, learn-from-my-problems]
-thumbnail-img: https://i.pinimg.com/236x/2d/f0/72/2df072f9db21c4b4a664a2823281018d.jpg
-cover-img: "https://i.pinimg.com/236x/27/e0/bd/27e0bde2c072c33f6ad1af29d0344fb2.jpg"
+title: why you should take a week off of your routin ?
+tags: [travel, productivity , personal, podcasts , special]
+thumbnail-img: https://i.postimg.cc/7Ym5t785/Whats-App-Image-2022-02-14-at-18-23-17-6.jpg
+cover-img: "https://i.postimg.cc/y84b5Jmz/Whats-App-Image-2022-02-14-at-18-23-17-2.jpg"
 ---
 
-Hi friends 
-expetion blog 
+<span style="background-color: #C6BF9C;">**why you should take a week off**</span>  ; leave your life behind and travel with familly /friends/ solo to a village/places ;live a simple life for a week ; then come back to ur life and hustle  
 
-im ashamed of my self ; while im sitting here and typing this my foggy thoughts , i made mistakes , i feel like im giving up on my dreams , i just want to have fun doing absolotly nothing to do with my dream ; i want to be confotobale and happy ; but thats wrong ; im really afraid of taking risk and doing stuff ; cuz of that pain after u do shit ton of work and failled that feer of failling makes me delay my dream ; and just live as it is ; watching yt videos waisting shit ton of time ; ican see the vision but i should remmember that the fucking pain is fun ; confotbale its the real pain ; do pain stuff ; keep fucking trying dont ever quite ; enjoy that fucking pain ; cuz someone out there in this world choose the pain over confort and gain adventege over u ; pain not over until u acheive ur dream ; step ABZ ; the goal Z ; the first step A , the second step B < 
+Hi friends,
+
+I hope you had a wonderful weekend. How’s the weather where you are? Unfortunately, over here, it went from warm temperatures to ice cold 🥶
+
+Did you learned somthing last week ? I traveled with ma familly and i was nervous asf ; meeting familly and i dont know how to talk propaly anyway i learned stuff along the way 
+
+## Study - School 📚
+How to use anki ? [fich write down the questions and answers in the other side and test ur self over time to memorize them]
+How to enjoy study ? [use colores and techniqs and study group]
+How to stay focused ? [pomodoro]
+How to take care of school materials ? [group to study with and ]
+
+I prepared a map full of topics that i will have at the exam , with some tips , but im still working on it , to eventely start before the end of this month
+
++ Everyday 2h (using pomodoro techniq) of revising school material of that day  
+[the begining always hard ABZ]
+## Lessons from the travel 🗻👏
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off0.png)
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off1.png)
+
+Good view and air ; its kinda cold in there because of the snow in the mountains so wear smth thic 
+
++ Dont eat stuff at "autoroute"
+	- expensive 
+	- bad food 
+*i got stomatch pain when i arrived :(*
+
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off2.png)
+
+Dinosor :) 
+
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off3.png)
+
+me and my brother 
+
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off4.png)
+
+look wt i found A FREAKINN OOLD SHOOTGUNN
 
 
-im capable of runing a great bussnes from now ; but fear paralyze me
-my fucking emotions are problem 
++ <span style="background-color: #C6BF9C;">**My maternal uncle got an interesting collection of old coins and retro stuff**</span>
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off5.png)
+**1980 repvbblica italiana l'100**
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off6.png)
+**HEHEHE**
 
-i shall use the weekends as adventage ; insted of resting 
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off7.png)
+**old money**  
 
-it doesnt mater wt happen to me today but I CAN ACHEIVE MY DREAM . 
-
-
-
-dreams without goals are just dreams
-
-
-prepare for the examen 
-keep failing and trying 
-
-### Conclusion (should be updated)
-
-This is really sad and disapointed , at the end we re all gonna die but wt did u acheive , did i pray to god ; did i acheive my dream ? ; where dfaq am i going 
-
-### Resources 
-
-https://youtu.be/g-jwWYX7Jlo
-
-https://youtu.be/26U_seo0a1g
-
-https://youtu.be/tbnzAVRZ9Xc
+![](../assets/img/2022-02-14-why-you-should-take-a-week-off/2022-02-14-why-you-should-take-a-week-off8.png)
 
 
+he got awesome cool stuff 😎
+
+## Entertaiment -cars 🚗
+✨✨✨
+![](https://pbs.twimg.com/media/FLkCbVPXMAknE0B?format=jpg&name=large)
+✨✨✨
+![](https://pbs.twimg.com/media/FLkCbVNXoAQEFEd?format=jpg&name=large)
+✨✨✨
+![](https://i.pinimg.com/564x/e3/62/34/e36234d88821886d7d4ae6f56e782a8f.jpg)
+✨✨✨
+
+## Podcasts 
+nextt week >...
+## gym ? 
+nextt week >...
+## ✍️ Quote of the week 
+
+⚡ "People who avoid failure, also avoid success" *[![Twitter URL](https://img.shields.io/twitter/url/https/twitter.com/bukotsunikki.svg?style=social&label=Follow%20%40bukotsunikki)](https://twitter.com/Thebeast_ufc)* ⚡ <br>
+**note 🔍**: 
+
+should we add a news letter ? IT news maybe 
 <p align="center">
-    <img src="https://media.giphy.com/media/3oz8xD8KOjTwxGG1q0/giphy.gif">
+    <img src="https://media.giphy.com/media/WUXTyq8A1C7OebUXOv/giphy.gif">
 </p>
+
 
 <p align="center">
     <a href="https://thefamasgame.medium.com/">
