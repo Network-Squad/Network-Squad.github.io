@@ -7,7 +7,7 @@ cover-img: ""
 ---
 # brrrrrrrrrrrrrr
 
-![](2022-04-17-TAKE-ACTION-DELAY-GRATIFICATION/2022-04-17-TAKE-ACTION-DELAY-GRATIFICATION0.png)
+![](../assets/img/2022-04-17-TAKE-ACTION-DELAY-GRATIFICATION/2022-04-17-TAKE-ACTION-DELAY-GRATIFICATION0.png)
 
 <span style="background-color: #C6BF9C;">**remake a paper version contain all the lessons and learn them connect them then cross them then revise them then test ur self then ur done**<span>
 
