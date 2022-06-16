@@ -18,8 +18,11 @@ study (work hard), pray/ chess / workout at home (rest), sleep (rest)
 
 ## Conc 
 yesterday & today i did that exam , i was happy about answering most of the questions and remmember allah dont waste ur work it counts and i should dig in islam and pray and be a true muslime cuz that will help me be a better person rather than fapping and doing nothing hoping for a mericale ; my goals are simple and clear i want to acheive them to satisfy my self not others  
-*remember THE PSP (rawane) STORY U GOTTA GRIND TO FIND*
 
+
+**note 🔍**: *remember THE PSP (rawane) STORY U GOTTA GRIND TO FIND*
+## quote 
+<span style="background-color: #C6BF9C;">**"think outside of the exam" ~Grumpy **<span>
 <p align="center">
     <img src="https://media.giphy.com/media/3oz8xD8KOjTwxGG1q0/giphy.gif">
 </p>
